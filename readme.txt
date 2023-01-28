@@ -1,4 +1,5 @@
 
+https://www.youtube.com/watch?v=xffbqSYmLT4&list=PLhFxX2qw3UUaFuz7QoCTfJweZ6Lr7eqoH&index=2
 
 
 Access Naver stocks and search the price and trading volume of the stock you want to search
